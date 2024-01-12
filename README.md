@@ -1,2 +1,2 @@
 # startinglearning
-AS for learning purpose
+AS for learning  jacky raj
